@@ -11,7 +11,7 @@
 
 - 👯 I’m looking to collaborate in **Deep Learning**
 
-- 📫 How to reach me **dsouzaidenross@gmail.com**
+- 📫 How to reach me **aidendsouzavnit@gmail.com**
 
 - ⚡ Fun fact **I sometimes trade my laptop for a bicycle and hit the road at dawn.**
 
